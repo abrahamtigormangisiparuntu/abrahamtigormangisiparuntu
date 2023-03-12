@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @abrahamtigormangisiparuntu/ abraham tigor mangisi paruntu
-- 👀 I’m interested in design ui/ux, penetration testing, 
+- 👀 I’m Interested in design ui/ux, Penetration testing, Digital Forensic
 - 🌱 I’m currently learning Cyber Security
 - 📫 abrahammangisiparuntu@gmail.com
